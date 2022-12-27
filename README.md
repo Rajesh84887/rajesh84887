@@ -1,4 +1,4 @@
-![MasterHead](https://liveimages.algoworks.com/new-algoworks/wp-content/uploads/2022/06/16052457/DevOps-Steps-1-min.gif)
+![MasterHead](https://miro.medium.com/max/1400/1*DluPjzT_eTUFdzHCI7JBZA.gif)
 
 <h1 align="center">Hi 👋, I'm Rajesh</h1>
 <h3 align="center">A passionate DevOps developer from India</h3>
