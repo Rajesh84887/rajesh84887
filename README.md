@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rajeshchodisetti.84887@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pyofYtikXbdHZ793tTz7D1Kh9ZSbKTlk/view?usp=sharing](https://drive.google.com/file/d/1pyofYtikXbdHZ793tTz7D1Kh9ZSbKTlk/view?usp=sharing](https://drive.google.com/file/d/1pyofYtikXbdHZ793tTz7D1Kh9ZSbKTlk/view?usp=sharing](https://drive.google.com/file/d/1pyofYtikXbdHZ793tTz7D1Kh9ZSbKTlk/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1pyofYtikXbdHZ793tTz7D1Kh9ZSbKTlk/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
