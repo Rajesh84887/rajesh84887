@@ -1,4 +1,4 @@
-![MasterHead](https://miro.medium.com/max/1400/1*DluPjzT_eTUFdzHCI7JBZA.gif)
+![MasterHead](https://www.careerguide.com/career/wp-content/uploads/2021/06/2-46.gif)
 
 <h1 align="center">Hi 👋, I'm Rajesh</h1>
 <h3 align="center">A passionate DevOps developer from India</h3>
